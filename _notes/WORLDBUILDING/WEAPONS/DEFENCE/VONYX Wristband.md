@@ -1,0 +1,1 @@
+A wristband where you can insert a [[VONYX]] sphere to activate the shield

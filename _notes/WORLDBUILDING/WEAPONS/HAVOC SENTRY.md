@@ -1,0 +1,1 @@
+A4 sized Capsule that can be pulled apart into a beartrap shape, and then deployed to make a sentry

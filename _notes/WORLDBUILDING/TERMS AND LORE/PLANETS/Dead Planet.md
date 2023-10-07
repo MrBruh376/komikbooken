@@ -1,0 +1,1 @@
+Planet with no atmosphere OR no life

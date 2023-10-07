@@ -1,0 +1,1 @@
+Fingers can turn to cloth and extend (literally stone free jojo)
